@@ -14,7 +14,7 @@
 
  - 👨‍💻 All of my projects are available at My Portfolio
 
- - 📫 How to reach me subham.raoniar@gmail.com
+ - 📫 How to reach me pamudithaperera777@outlook.com
 
-⚡ Fun fact I play games and go to the GYM very often.
+ - ⚡ Fun fact I play games and go to the GYM very often.
 
